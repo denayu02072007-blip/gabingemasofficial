@@ -1,2 +1,0 @@
-# gabingemasofficial
-jajanan kuliner
